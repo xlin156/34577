@@ -20,5 +20,4 @@
 
 如果你正在寻找稳定更新、无广告干扰的日本AV免费在线观看网站，收藏本页，每天都有惊喜发现！
 
-<span style="display:none;">[Canonical link](）</span># 34577
-989888778
+<span style="display:none;">[Canonical link](https://github.com/xlin156/34577 ）</span>
